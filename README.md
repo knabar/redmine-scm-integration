@@ -16,5 +16,5 @@ Totally awesome!
 
 Dude, Where's My Car?
 
-Still checking...
+Still checking...  and still checking...
 
